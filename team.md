@@ -1,1 +1,1 @@
-Team lead: [Chitundu Nakanyika]
+Team lead: Chitundu Nakanyika
