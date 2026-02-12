@@ -1,1 +1,1 @@
-Team lead: Joshua Kamunda
+Team lead: Joshua Kamunda and Chitundu Nakanyika 
